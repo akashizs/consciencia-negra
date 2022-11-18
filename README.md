@@ -10,13 +10,13 @@ intenções, mas acabou prestando um desserviço à luta contra o racismo e a fa
 desigual entre pessoas por vários fatores. Os principais fatores de 
 desigualdade são:
 
-gênero;https://www.politize.com.br/wp-content/uploads/2022/03/vamos-falar-de-genero.png
+gênero;
 
 
 
 
+cor da pele;![image](https://user-images.githubusercontent.com/105931349/202779895-eb84c6e9-d4c2-4687-b863-e0dafbe0604a.png)
 
-cor da pele;
 
 
 
