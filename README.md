@@ -10,7 +10,8 @@ intenções, mas acabou prestando um desserviço à luta contra o racismo e a fa
 desigual entre pessoas por vários fatores. Os principais fatores de 
 desigualdade são:
 
-gênero;1.920 × 1.242
+gênero;![image](https://user-images.githubusercontent.com/105931349/202778993-22999131-ecc4-4ce1-93c5-3facc006bc1b.png)
+
 
 
 
