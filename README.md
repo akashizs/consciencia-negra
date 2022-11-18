@@ -10,7 +10,7 @@ intenções, mas acabou prestando um desserviço à luta contra o racismo e a fa
 desigual entre pessoas por vários fatores. Os principais fatores de 
 desigualdade são:
 
-gênero;![image](https://user-images.githubusercontent.com/105931349/202778993-22999131-ecc4-4ce1-93c5-3facc006bc1b.png)
+gênero;
 
 
 
@@ -18,14 +18,17 @@ gênero;![image](https://user-images.githubusercontent.com/105931349/202778993-2
 
 
 
-cor da pele;
+cor da pele;![Uploading image.png…]()
 
 
 
 
 
 
-sexualidade;
+
+sexualidade;![image](https://user-images.githubusercontent.com/105931349/202779076-26734314-e5fb-4651-bda1-7d74a356e45b.png)
+![Uploading image.png…]()
+
 
 
 
