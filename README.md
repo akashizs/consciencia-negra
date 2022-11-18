@@ -10,10 +10,6 @@ intenções, mas acabou prestando um desserviço à luta contra o racismo e a fa
 desigual entre pessoas por vários fatores. Os principais fatores de 
 desigualdade são:
 
-gênero;
-
-
-
 
 cor da pele;![image](https://user-images.githubusercontent.com/105931349/202779895-eb84c6e9-d4c2-4687-b863-e0dafbe0604a.png)
 
@@ -27,13 +23,6 @@ cor da pele;![image](https://user-images.githubusercontent.com/105931349/2027798
 sexualidade;![image](https://user-images.githubusercontent.com/105931349/202779076-26734314-e5fb-4651-bda1-7d74a356e45b.png)
 ![Uploading image.png…]()
 
-
-
-
-
-
-
-condição socioeconômica.
 
 
 História da consciência negra
